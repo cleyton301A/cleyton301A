@@ -9,5 +9,3 @@ Meu nome é Cleyton Kotarski
 ### Você pode entrar em contato comigo 📬
 
 ### Cleyton.kotarski@escola.pr.gov.br
-
-
